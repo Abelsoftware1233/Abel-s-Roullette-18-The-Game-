@@ -3,7 +3,7 @@ this is a payment apk gamble game 18+
 copyright 2025 belong to Abelsoftware123
 
 
-software development Karim.
+software development.
 
 patent and license 2025
 
